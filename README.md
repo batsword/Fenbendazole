@@ -15,6 +15,7 @@ Can I try this program to treat cancer?
 
 
 -- The blog of the healed man： https://www.mycancerstory.rocks/
+
 -- His story is also on the blog.
 
 
