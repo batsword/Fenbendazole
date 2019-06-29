@@ -26,5 +26,8 @@ Can I try this program to treat cancer?
 但我很困惑。              
 方案是否有效，事件是否真实？              
 这项计划的支持者似乎根本没有从中受益。              
-我能试试这个治疗癌症的程序吗？              
---治愈者的博客：https://www.mycancerstory.rocks/—他的故事也在博客上。
+我能试试这个治疗癌症的程序吗？    
+
+--治愈者的博客：https://www.mycancerstory.rocks/
+
+—他的故事也在博客上。
