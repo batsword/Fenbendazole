@@ -12,3 +12,7 @@ Is the scheme effective and is the event real?
 It seems that the proponents of the scheme have not benefited at all.
 
 Can I try this program to treat cancer?
+
+
+-- The blog of the healed man： https://www.mycancerstory.rocks/
+-- His story is also on the blog.
