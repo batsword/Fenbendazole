@@ -18,9 +18,15 @@ Can I try this program to treat cancer?
 
 -- His story is also on the blog.
 
+Pros:
+ 
+https://www.zhihu.com/question/322066375?sort=created
+
 
 Opposition side:
+
 And something in China
+
 https://zhuanlan.zhihu.com/p/65390752
 
 
@@ -38,7 +44,13 @@ https://zhuanlan.zhihu.com/p/65390752
 
 —他的故事也在博客上。
 
+赞成方:
+
+https://www.zhihu.com/question/322066375?sort=created
+
 
 反对方:
+
 而中国国内某乎
+
 https://zhuanlan.zhihu.com/p/65390752
