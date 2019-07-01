@@ -19,6 +19,11 @@ Can I try this program to treat cancer?
 -- His story is also on the blog.
 
 
+Opposition side:
+And something in China
+https://zhuanlan.zhihu.com/p/65390752
+
+
 *************************************************
 
 芬苯达唑真的有效抗癌吗？              
@@ -32,3 +37,8 @@ Can I try this program to treat cancer?
 --治愈者的博客：https://www.mycancerstory.rocks/
 
 —他的故事也在博客上。
+
+
+反对方:
+而中国国内某乎
+https://zhuanlan.zhihu.com/p/65390752
