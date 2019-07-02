@@ -31,6 +31,10 @@ And something in China
 
 https://zhuanlan.zhihu.com/p/65390752
 
+other:
+
+https://zh.wikipedia.org/wiki/甲苯咪唑
+
 
 *************************************************
 
@@ -58,3 +62,7 @@ https://www.zhihu.com/question/328684767
 而中国国内某乎
 
 https://zhuanlan.zhihu.com/p/65390752
+
+其他:
+
+https://zh.wikipedia.org/wiki/甲苯咪唑
