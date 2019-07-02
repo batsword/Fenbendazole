@@ -35,6 +35,8 @@ other:
 
 https://zh.wikipedia.org/wiki/甲苯咪唑
 
+https://www.douban.com/group/topic/139544006/
+
 
 *************************************************
 
@@ -66,3 +68,5 @@ https://zhuanlan.zhihu.com/p/65390752
 其他:
 
 https://zh.wikipedia.org/wiki/甲苯咪唑
+
+https://www.douban.com/group/topic/139544006/
