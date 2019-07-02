@@ -22,6 +22,8 @@ Pros:
  
 https://www.zhihu.com/question/322066375?sort=created
 
+https://www.zhihu.com/question/328684767
+
 
 Opposition side:
 
@@ -47,6 +49,8 @@ https://zhuanlan.zhihu.com/p/65390752
 赞成方:
 
 https://www.zhihu.com/question/322066375?sort=created
+
+https://www.zhihu.com/question/328684767
 
 
 反对方:
